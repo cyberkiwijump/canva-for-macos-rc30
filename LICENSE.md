@@ -1,4 +1,4 @@
-# 
+# Canva for macOS professional Tool: version-history & text-animation is the best Canva for macOS tool, featuring version-history and text-animation. Powerful, efficient, and
 
 
 
